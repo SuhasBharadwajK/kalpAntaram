@@ -1,0 +1,6 @@
++++
+title = "118 देशधर्माञ् जातिधर्मान्"
+
++++
+
+With a concentrated mind, one should perceive in the Self all things, real as well as unreal. One who perceives all things in the Self never turns his mind towards wrong.—(118)
