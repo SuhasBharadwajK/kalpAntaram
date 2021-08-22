@@ -3,4 +3,4 @@ title = "079 यद् प्राग्"
 
 +++
 
-Separations from relations and loved ones, dwelling with the wicked, acquiring wealth and losing it, making of friends and enemies.—(79)
+The ‘Time-cycle of the Gods’ which has been described above as consisting of ‘twelve thousand periods,’—this multiplied by ‘seventy-one’ forms what is known here as ‘Manvantara’ (Regime of a Manu).—(79)

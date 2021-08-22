@@ -3,4 +3,4 @@ title = "106 इदं स्वस्त्ययनम्"
 
 +++
 
-If a man explores, by ratiocination, the Vedic teaching regarding Dharma, he alone, and no other, understands Dharma.—(106)
+This (treatise) is ever conducive to welfare; it is most excellent; it expands the understanding brings fame and constitutes the highest good.—(106)

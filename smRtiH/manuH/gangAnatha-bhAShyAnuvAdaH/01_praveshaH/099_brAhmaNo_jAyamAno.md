@@ -2,22 +2,12 @@
 title = "099 ब्राह्मणो जायमानो"
 
 +++
-That the Veda upholds all beings has been indicated in the following
-Brāhmaṇa-text—‘Sacrificial materials are offered into fire,—the fire
-raises it up to the Sun,—the Sun bears it on his rays,—thence comes
-rain; thus it is that the sacrificial material comes to be regarded as
-the cause of the birth and existence of all beings.’ This same idea has
-been expressed in the present work also—‘The material rightly thrown
-into the fire rises up to the Sun,’ and so forth (3.76).
+The Brāhmaṇa comes to the top of the entire world; this ‘coming to the
+top’ indicates his supremacy.
 
-For these reasons I regard this as the best means for the accomplishing
-of the ends of man. In what manner the Veda supplies all the knowledge
-regarding man’s duties has been already shown.
-
-“What fulfils all these ends,—is it *Vedic* (spiritual), or *worldlly*
-(physical)?”
-
-The duty is spiritual, but the actual act, which is visible to the eye,
-is physical.—(99)
+‘*He is the Supreme Lord of all beings*’,— and this supremacy comes
+about for the ‘*purpose* *of guarding the treasure of
+Virtue*.’—‘*Treasure*’ means a collection of objects; hence through
+similarity, the collection of Virtues is called ‘treasure’ (99).
 
 

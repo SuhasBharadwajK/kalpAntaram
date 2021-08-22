@@ -2,5 +2,4 @@
 title = "014 उद्बबर्हात्मनश् चैव"
 
 +++
-‘*Vyāpya*.’—‘Pervade,’ (Govindarāja),—‘rest on’ (Kullūka);—‘Conceal
-through illusion’ (Nārāyaṇa).
+(अग्रे व्याख्यानम्।)

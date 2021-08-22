@@ -3,4 +3,4 @@ title = "101 स्वम् एव"
 
 +++
 
-Just as fire, having gained strength, burns even green trees, even so does the person knowing the Veda consume all the evil effects of his deeds.—(101) 
+What the Brāhmana eats is his own; his own what he wears and his own also what he gives; it ts due to the good will of the Brāhmaṇa that other people enjoy (things). (101).

@@ -3,4 +3,4 @@ title = "074 तस्य सो"
 
 +++
 
-By the repetition of the said sinful acts, those men with shall understanding undergo sufferings in the various forms of existence in this world.—(74)
+At the end of the said ‘Day and Night,’ Brahmā, who was asleep, wakes up, and ha vino woken up, he creates mind, which partakes op the nature op the existent and the non-existent.—(74)

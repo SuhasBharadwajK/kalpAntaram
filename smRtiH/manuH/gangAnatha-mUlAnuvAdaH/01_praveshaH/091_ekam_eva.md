@@ -3,4 +3,4 @@ title = "091 एकम् एव"
 
 +++
 
-He who perceives the Self in all beings, and all beings in the Self,—and sacrifices to the Self,—attains self-sovereignty.—(91)
+For the Śūdra the Lord ordained only one function: the ungrudging service of the said castes. (91).

@@ -3,4 +3,4 @@ title = "071 यद् एतत्"
 
 +++
 
-The Brāhmaṇa fallen off from his own duty becomes a ‘fire-mouthed’ Preta feeding on vomitings; and the Kṣatriya a ‘foul-nosed’ Preta feeding on impure substances and dead bodies.—(71)
+This period of the four time-cycles that have been just computed,—twelve thousand such periods are called the ‘time-cycle of the gods.’—(71)

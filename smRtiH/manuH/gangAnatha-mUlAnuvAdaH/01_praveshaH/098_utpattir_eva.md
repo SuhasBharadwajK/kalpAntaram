@@ -3,4 +3,4 @@ title = "098 उत्पत्तिर् एव"
 
 +++
 
-Sound, touch, colour, taste, and odour as the fifth, proceed from the Veda; their production being due to the ‘secondary rites.’—(98)
+The very genesis of the Brāhmaṇa is the eternal incarnation of Virtue; for he is born for the sake of Virtue; and this (birth) leads to the state of Brahman. (98).

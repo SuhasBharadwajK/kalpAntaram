@@ -3,5 +3,4 @@ title = "080 मन्वन्तराण्य् असङ्ख्यान
 
 +++
 
-
-Inevitable decrepitude, the pangs of sickness, various forms of afflictions and unconquerable death.—(80) 
+Innumerable Manvantaras, as also Creation and Dissolution—all this the supreme lord calls into being again and again, as if in amusement—(80).

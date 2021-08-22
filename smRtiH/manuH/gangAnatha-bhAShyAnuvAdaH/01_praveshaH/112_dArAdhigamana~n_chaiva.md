@@ -2,14 +2,14 @@
 title = "112 दाराधिगमनञ् चैव"
 
 +++
-The meaning of the Veda is understood with the help of Nirukta,
-Vyākaraṇa and Mīmāṃsā. A knowledge of these should be possessed by all
-the three persons, as these do not help the comprehending of the meaning
-of any one Veda only, and not of others. Hence a knowledge of these is
-essential in all cases.
+‘*Taking of wife*,’—the accepting of a wife in marriage;—‘*the
+definition*’—*i.e*., the means of distinguishing the exact
+character—‘*of marriages*,’—such as the ‘*Brahma*’ and the rest, which
+form the means by which the wife is taken.—‘*The great sacrifices*’—the
+five offerings of the ‘Vaiśvadeva’ and the rest.—‘*The regulations*,’
+rules, method, *relating to śrāddhas, ‘offering to the Pitṛs*.’
 
-The distinction of the three Vedas—Ṛgveda and the rest—has been
-mentioned on the basis of the distinction made in the
-*Gṛhyasūtras*.—(112)
+The terms ‘*para*,’ ‘*excellent*’ (in verse 111), and ‘*eternal*’ (in
+112) only serve to fill in the metre.
 
-
+All this forms the subject-matter of discourse III.—(112)

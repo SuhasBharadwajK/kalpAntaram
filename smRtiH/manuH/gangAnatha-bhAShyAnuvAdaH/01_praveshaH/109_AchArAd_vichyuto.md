@@ -2,37 +2,28 @@
 title = "109 आचाराद् विच्युतो"
 
 +++
-This verse provides the definition of the ‘cultured’ man.
+This verse eulogises Right Behaviour iu another manner.
 
-“The definition of the *cultured* man has already been [provided under
-2.13](/hinduism/book/manusmriti-with-the-commentary-of-medhatithi/d/doc145586.html).”
+‘*He who departs from Right behaviour*,’—*i.e*. is devoid of Right
+Conduct—does not obtain the ‘*fruit of the Veda*’; what is called ‘*the
+fruit of the Veda* is the result proceeding from the performance of acts
+prescribed in the Veda. Even though the man may perform the acts
+prescribed in the Veda, in their entire and perfect forms, yet if he
+happens to be one who has fallen off from Right Behaviour, he does not
+obtain their results, in the shape of the ‘birth of a son’ and so forth.
+This is the deprecation of men not following Eight Behaviour.
 
-But that verse has been suspected of having a totally different meaning;
-hence it cannot be regarded as providing the required definition. There
-is another statement—that man is *cultured* who is not affected by
-desires.’ But in this, ‘learning’ is not made a necessary condition.
-\[Hence this also cannot be accepted as the requisite definition.\]
+This same idea is expressed obversely in the next sentence.
 
-When the Veda has been completely learnt and its meaning has been
-thoroughly grasped,—‘*along with its supplements*’—as described by the
-revered Vyāsa,—‘The Veda should be *supplemented* by *Itihāsas* and
-*Purāṇas*’;—by this the *Smṛtis* also became included.
+‘*He who is equipped with Right Behaviour obtains the full reward*,’—of
+all those optional acts that are done with a purpose.
 
-The mention of ‘*Brāhmaṇas*’ is purely reiterative; since none other
-than the Brāhmaṇa is entitled to expound *Dharma*.
+In this connection some people argue as follows:—“In as much as the text
+contains the qualification ‘full,’ it follows that the man devoid of
+Right Behaviour does also obtain the results of his optional acts done
+with a purpose,—only the *full* result does not accrue to them.”
 
-‘*Guided directly by the revealed texts*’—The revealed texts are their
-‘*direct guide*’;—*i.e*., those for whom the Veda constitutes Perception
-and all other means of knowledge. What is meant is that they look upon
-the Veda as free from all defects, to the same extent that direct
-Perception is regarded as entirely trustworthy,—they do not rely upon
-those means of cognition that are based entirely on reasonings; they
-regard the Veda itself as embodying ‘reasoning’ also, and do not seek to
-establish the authority of the Veda by means of arguments.
+This is not right; because the term ‘full’ is purely commendatory \[and
+hence cannot be taken as having any serious import\].—(109).
 
-Or, the phrase may mean that ‘they rely upon such Vedic texts as are
-directly found’;—*i.e*., they look upon these directly perceptible texts
-as the sole means of ascertaining what is *Dharma* (right) and what is
-*Adharma* (wrong).—(109)
-
-
+[](Javascript:void(0);)

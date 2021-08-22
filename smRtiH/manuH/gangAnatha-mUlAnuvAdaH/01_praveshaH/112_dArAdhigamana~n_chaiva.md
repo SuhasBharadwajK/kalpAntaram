@@ -3,4 +3,4 @@ title = "112 दाराधिगमनञ् चैव"
 
 +++
 
-A person knowing the Ṛgveda, a person knowing the Yajurveda, and a person knowing the Sāmaveda, shall be understood to form the assembly of at least three members, competent to decide doubtful points of law.—(112)
+The taking of wife,—the definition of the several forms of Marriage,—the method of the Great Sacrifices,—the eternal regulations relating to the offering to Pitṛs. — (112)

@@ -3,4 +3,4 @@ title = "105 पुनाति पङ्क्तिम्"
 
 +++
 
-If one desires to obtain the correct knowledge of Dharma, he should become fully acquainted with these three:—Perception, Inference and the Scriptures of various traditions.—(105)
+He purifies his company, and also his kindreds—seven higher (ancestors) and seven lower (descendants). he alone deserves this entire earth.—(105)

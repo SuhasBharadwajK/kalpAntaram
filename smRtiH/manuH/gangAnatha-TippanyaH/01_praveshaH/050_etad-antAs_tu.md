@@ -2,11 +2,9 @@
 title = "050 एतद्-अन्तास् तु"
 
 +++
-‘*Mahān*’.—‘Supreme soul’ (Medhātithi);—‘the deity presiding over the
-*Mohat-tattva* of the Sāṅkhyas’ (Govindarāja and Kullūka).
+‘*Bhūta*’—here stands for the *Kṣetrajña*, the Conscious Being ensouling
+the body—according to Govindarāja and Kullūka.
 
-This verse is quoted in *Aparārka* (p. 999);—in *Madanapārijāta* (p.
-694);—in *Parāśaramādhava* (Prāyaścitta, p. 489);—and in
-*Nṛsiṃhaprasāda* (Prāyaścitta 41a).
-
-
+‘*Nityam*’—qualifies ‘*ghore*’; ‘Ever terrible’ according to Medhātithi,
+Govindarāja and Nārāyaṇa, the last, along with Nandana, however,
+suggests the reading ‘*nitye*’ meaning ‘in this eternal samsāra.’

@@ -2,12 +2,11 @@
 title = "072 दैविकानां युगानाम्"
 
 +++
-‘*Maitrākṣajyotika*,’ like the foregoing terms, is another name for a
-*Piśāca*. Or the name may mean—“one who has *light* (‘*jyotiḥ*’) issuing
-from the *hole* (‘*akṣi*’) of the *anus* (‘*maitra*’).”
+Thousand ‘Time-cycles’ of the Gods make one ‘day’ of Brahmā.—Brahmā’s
+night also ‘*is of the same extent*’—*i.e*., as long as thousand
+‘Time-cycles’ of the Gods.—‘*In number*’ —*i.e*., which in computation,
+is *one thousand*; the adding of this term is only for the purpose of
+tilling up the verse; for a thing cannot be spoken of as a‘thousand’
+except *in number*.
 
-Others explain the term as standing for the *owl*; ‘*maitra*’ being the
-*light of the sun*, and ‘*akṣajyotiḥ*’ meaning *visual perception*; the
-name connoting the fact that the owl cannot see in solar light—(72)
-
-
+The instrumental ending (in ‘*Sāṅkhyayā*’) denotes *causality*.

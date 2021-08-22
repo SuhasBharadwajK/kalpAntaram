@@ -2,15 +2,12 @@
 title = "067 दैवे रात्र्य्-अहनी"
 
 +++
-When it was said ([under
-62](/hinduism/book/manusmriti-with-the-commentary-of-medhatithi/d/doc202246.html))
-that ‘for stealing water one becomes a *Plava* -bird,’ it was water for
-drinking purposes that was meant; while in the present verse, it is
-water for irrigating fields and such other purposes.
-
-[Under verse
-62](/hinduism/book/manusmriti-with-the-commentary-of-medhatithi/d/doc202246.html),
-the term ‘*Rasa*’ may be taken either as the *first* kind of flavour
-(*Sweet*), or as medicinal substances.—(67)
-
-
+‘*One year*,’ of men,—*i.e*., twelve months,—‘*forms* *the Day and Night
+of the Gode*.’—The division of these is by means of the ‘Northern
+Course’ and the ‘Southern Course’; the six months during which the Sun
+moves towards the North is the ‘Northern Course,’ ‘*Udagayanam*’; the
+term ‘*ayana*’ standing for *moving* or *occupying*; the meaning being
+that during the six months the Sun rises towards that particular
+quarter. Turning hack from that, there comes the ‘Southern course’;
+during these six months the Sun abandons the Northern quarters and rises
+towards the South.—(67)

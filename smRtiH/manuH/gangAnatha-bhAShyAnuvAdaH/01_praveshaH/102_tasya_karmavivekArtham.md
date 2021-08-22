@@ -2,13 +2,16 @@
 title = "102 तस्य कर्मविवेकार्थम्"
 
 +++
-‘*Union with Brahman*’—becoming one with Brahman, (*i.e*., attaining
-Brahman).
-
-‘*In whatever*’—*i.e*., even though he may not take to the several
-stages in the regular order. This is what has been referred to in such
-passages as—‘Brāhmaṇas, deviating from the regular path, pass on to the
-stage of the Mendicant immediately after passing through that of the
-Student.’—102
+This verse serves the purpose of indicating the upshot of the entire
+eulogium pronounced on the Brāhmaṇa (in the foregoing verses);—\[the
+sense being\]—‘These institutes are so important that they serve the
+purposes of the Brāhmana who is endowed with a high degree of supremacy
+due to his own inherent excellence’;—‘*for the puryose of regulating the
+actions*,’—*i.e*. for the purposes of *regulating*, in the form ‘such
+and such acts should be done, and such and such others should be
+avoided’;—‘*of others also*,’ *i.e*. of the *Kṣatriya* and the
+rest;—‘*Incidentally*,’—*i.e*. primarily for the Brāhmaṇa, and only
+incidentally for the *Kṣatriya* and other castes;—‘*he elaborated*.’—set
+forth,—‘*these institutes* .’—(102)
 
 

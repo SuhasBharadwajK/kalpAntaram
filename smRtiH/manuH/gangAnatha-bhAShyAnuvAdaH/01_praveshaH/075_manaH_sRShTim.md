@@ -2,14 +2,16 @@
 title = "075 मनः सृष्टिम्"
 
 +++
-The ‘*Tāmisra*,’ the ‘*Aṇḍhatāmisra*’ and other hells have been
-enumerated above (under 4.80).
+Though the creation of the ‘Principles’ has been already described, it
+is stated again for the purpose of pointing out the details not set
+forth before.
 
-‘*Being tossed about in this*’—lying on one side and turning on the
-other and so forth.
+*Vikurute*, ‘*evolves*,’—*i.e*., being impelled, by Brahmā, it brings
+about creation in a particular manner;—from out of the ‘Mind’ (*i.e*.,
+the Great Principle of Intelligence), thus propelled (to modification)
+is produced *Ākāśa*; and this *Ākāśa* possesses the quality known as
+‘Sound ‘*Quality*’ is that which subsists (in a substance); and the
+substratum of the quality of Sound is *Ākāśa*, in the sense that no
+Sound is possible apart from *Ākāśa*.—(75)
 
-Being bound up to the sword-like leaves of trees; or being ‘mangled’ by
-these same leaves lying scattered on the ground—the limbs being cut
-about like a piece of plantain-stalk.—(75).
-
-
+[](Javascript:void(0);)

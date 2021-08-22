@@ -3,4 +3,4 @@ title = "053 तस्मिन् स्वपिति"
 
 +++
 
-Into what wombs the soul enters,—and in consequence of what acts,—listen to that, in due order.—(53)
+When he slumbers, having retired within himself, all active embodied beings desist from their actions, and their mind falls into depression.—(53)

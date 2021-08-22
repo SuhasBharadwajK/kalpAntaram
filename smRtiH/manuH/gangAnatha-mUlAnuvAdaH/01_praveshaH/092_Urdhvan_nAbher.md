@@ -3,4 +3,4 @@ title = "092 ऊर्ध्वन् नाभेर्"
 
 +++
 
-Having renounced even the said acts, the Brāhmaṇa shall concentrate his effort on the knowledge of Self, on calmness and on the study of the Veda.—(92)
+Man is described as purer above his naval; hence the Self-existent One has declared the mouth to be his purest part. (92)

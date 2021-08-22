@@ -3,4 +3,4 @@ title = "087 सर्वस्याऽस्य तु"
 
 +++
 
-All these are fully included, each in its turn, in a particular course of performance of the Vedic Act.—(87)
+With a view to the protection of this entire creation, the Resplendent One ordained the distinct functions of those who sprang from the mouth, the arms, the thighs and the feet—(86).

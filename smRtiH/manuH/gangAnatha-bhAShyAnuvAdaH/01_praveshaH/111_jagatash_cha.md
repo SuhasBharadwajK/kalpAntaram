@@ -2,41 +2,31 @@
 title = "111 जगतश् च"
 
 +++
-Though the text speaks of the number of members as the more important
-factor, yet it should be understood as laying greater stress upon the
-qualifications.
+The ‘Virtues’ expounded in the Treatise are here specified in detail.
+With a view to attract the attention of the hearers, it has been
+described in Verse 50, *et. seq*., that the results of ‘Virtue’ are
+endless. But it is passible that hearers might become discouraged by the
+idea that ‘Virtue’ is interminable, without end; hence with a view to
+encourage them, the Author is now providing a summary of the institute,
+in the shape of a list of contents:—the sense being—‘only so many are
+the subjects dealt with, not too many, and they can certainly be learnt
+by people who are endowed with due regard and amount of confidence the
+idea is that if the path traversed is one that has been described
+briefly, it is not unbearable.
 
-‘*A person learned in the three Vedas*’—he who has learnt the three
-Vedas, and knows their meaning.
+‘*The coming into existence of the world*,’—*i.e*. the measure of time,
+the delineation of the characteristics of principles and things, the
+praise of the Brāhmaṇa, and so forth,—all these are included under the
+‘*coming into existence of the world*’; this subject has been dealt with
+in the Treatise as a commendatory description, and not as something to
+be actually accepted as absolutely true.
 
-‘*Logician*’—who is an expert in drawing Inferences; endowed with the
-faculty of considering the *pros* and *cons* of a subject.
-
-“It has been said under that a Logician can never be *learned in the
-Veda*.”
-
-True; but, even though he may not himself learn the Veda, yet he may
-know its contents from other men; and the knowledge of Logic will enable
-him to put forth special efforts in this line.
-
-This same remark applies to the person knowing the *Nirukta* also.
-
-‘*Lawyer*’—one who has studied the Ordinances of Manu and other
-law-books.
-
-‘*Three men belonging to the life-stages*’;—those who are devoted to the
-actual performance of their duties become specially adept in matters
-relating to *Dharma*.
-
-‘*First*.’—Some people explain this to mean, (1) the Religions Student,
-(2) the Householder and (3) the Wandering
-
-Mendicant; since it is only these persons whose entry into villages has
-not been forbidden; and it is in this order that the life-stages have
-been named by Gautama (3. 2)—‘The Student, the Householder, the
-Wandering Mendicant, and the Recluse.’ Others however argue that
-‘causing injury’ being not permitted for the Mendicant, how could he
-decide points of law (which may involve loss and injury to certain
-persons)? Hence the *Recluse* should be the third.—(111)
-
-
+‘*The rates relating to sacramental rites*,’ ‘*the method of keeping
+observances*.’ By ‘sacramental rites’ are meant those connected with
+‘Impregnation’ and the rest; the ‘rules’ *i.e*., procedure—relating to
+these;—*the keeping of ‘observances*’—*i.e*., by the Initiated
+Student,—of these the ‘*method*,’ the actual performance, the
+procedure;—this sums up what has been proclaimed in Discourse
+II.—‘*Final Ablution,’—i.e*. the particular ceremony performed by one
+who is returning from the house of his Preceptor (after finishing his
+course of study).—(111)

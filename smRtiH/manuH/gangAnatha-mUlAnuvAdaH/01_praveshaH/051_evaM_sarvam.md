@@ -3,4 +3,4 @@ title = "051 एवं सर्वम्"
 
 +++
 
-Thus has been described the entire thrice threefold migratory process pertaining to all beings, arising out of the three kinds of action.—(51)
+Thus repeatedly suppressing time (of dissolution) by time (of creation and maintenance), he, of inconceivable power, created all this and also myself; [he directed me to maintain it] and then disappeared within himself.—(51)

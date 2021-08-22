@@ -3,4 +3,4 @@ title = "066 पित्र्ये रात्र्य्-अहनी"
 
 +++
 
-For stealing fire, a heron; for stealing utensils, a ‘Gṛhakāri’-bird; for stealing red clothes, one is born as a ‘Jīvajīvaka’-bird—(66)
+One month (of men) forms the ‘day and night’ of the ‘Pitṛs’; and their division is by fortnights: the darker fortnight, conducive to activity, is ‘Day,’ and the lighter fortnight, conducive to repose, is ‘Night.’—(66)

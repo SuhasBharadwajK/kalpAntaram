@@ -3,4 +3,4 @@ title = "076 आकाशात् तु"
 
 +++
 
-Also various forms of torments, being devoured by ravens and owls, tortures from morasses and scorching sand, and terrible boiling in jars.—(76)
+After Ākāśa, from out of the same evolvent [‘Mind’], there comes into existence the pure and potent Wind, the vehicle of all odours; and it is held to be endowed with the quality of Touch.—(76)

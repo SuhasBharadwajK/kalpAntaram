@@ -3,4 +3,4 @@ title = "013 ताभ्यां स"
 
 +++
 
-An inner ‘self,’ called ‘Jīva,’ ‘Soul,’ is different,—generated along with all embodied beings, through which one experiences pleasure and fain during the several births.—(13)
+Out of those two pieces (of the egg) he formed Heaven and Earth, and, between them, the Ākāśa, the eight quarters and the eternal receptacle of water.—(13)

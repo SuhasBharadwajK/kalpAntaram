@@ -2,12 +2,16 @@
 title = "027 अण्व्यो मात्रा"
 
 +++
-‘*Full of bliss*’—a feeling of happiness.
+This verse sums up what has gone before.
 
-‘*Śuddhābham*’—that which *appears pure*, not tainted by ‘Rajas’ and
-‘Tamas,’ and hence free from passions, vanity, love, hatred,
-covetousness, delusion, fear, grief and jealousy. This condition is one
-that should be realised by the man himself, at some time or the
-other.—(27)
+‘*Of the half-ten*’—*i.e*., of the five elemental substances;—‘*the
+subtile*,’—minute,—‘*constituents*,’—parts; *i.e*., the ‘Rudimentary
+substances’; these are ‘*evanescent*’;—they are called ‘evanescent’
+(liable to destruction) in the sense that, being liable to undergo
+modifications, they take up grosser forms.—‘*along with those*,' ‘*this
+whole*’—world,—‘*comes forth*,’—is produced;—‘*in due order*,’—in proper
+sequence; *i.e*., from the subtile the gross, and from the gross the
+grosser; or in the order in which they have been described (in the
+foregoing verses).—(27)
 
 

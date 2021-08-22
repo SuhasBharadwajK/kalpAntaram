@@ -2,10 +2,8 @@
 title = "065 अहोरात्रे विभजते"
 
 +++
-**(verses 12.64-67)  
-**
-
-See Comparative notes for [Verse
-12.64](/hinduism/book/manusmriti-with-the-commentary-of-medhatithi/d/doc202244.html#explanatory-notes "English translation of verse").
+‘*Rātriḥ svapnāya* &c.’—This line supplies the definition of ‘Day’ and
+‘Night’ for those regions that are beyond the reach of the Sun;—‘Day’
+being the *period of activity*, and ‘Night’ the *period of repose*.
 
 

@@ -3,4 +3,4 @@ title = "048 गुच्छ-गुल्मन् तु"
 
 +++
 
-Ascetics and hermits, Brāhmaṇas, celestial beings, lunar asterisms, and Daityas represent the first state partaking of ‘Sattva.’—(48)
+The various kinds op clumps and thickets, and the other species of grass, as also low-spreading tendrils and creepers—all these grow out of seeds and slips.—(48)

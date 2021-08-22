@@ -3,4 +3,4 @@ title = "006 ततः स्वयम्भूर्"
 
 +++
 
-Abusing, lying, calumniating all men, and idle prattling,—are the pour kinds of ‘verbal action.’—(6)
+Thereafter, the supreme being Hiraṇyagarbha, self-born, unmanifest and bringing into view this (universe), appeared,—dispelling darkness and having his (creative) power operating upon the Elemental Substances and other things.—(6)

@@ -2,5 +2,9 @@
 title = "077 वायोर् अपि"
 
 +++
-‘*Low forms of life*’—such as the lower animals, Pretas and
-Piśācas;—birth in these, which is full of misery.—(77)
+The two words ‘*bright*’ and ‘*radiant*,’ which are synonymous, have
+been used with a view to indicate that Light is itself *bright*, and it
+also illumines other things; that it is itself endowed with brilliance
+and it makes other things also brilliant.—(77)
+
+

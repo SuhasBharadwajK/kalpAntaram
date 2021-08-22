@@ -2,43 +2,23 @@
 title = "085 अन्ये कृतयुगे"
 
 +++
-**(verses 12.84-85)**
+This verse sums up what has been said in regard to the diversity in the
+nature of things based upon the difference in time.
 
-The ‘Knowledge of Self’ is of two kinds—(1) the Knowledge of the *Self*,
-as something distinct from the body, the sense-organs and other
-things,—as the *doer* of acts and the *experiencer* of results, as the
-object of the notion of ‘I’ which forms part of the conception of the
-Self, as bearing the names of ‘*Soul*,’ ‘Conscious Being,’ and so forth,
-as enjoying, even after the death of the body, the fruits of actions
-that have not been spent up; and (2) the Knowledge of the Self as the
-one Supreme Entity ensouling all entities, including men and
-animals,—the one eternal cause of the birth, existence and dissolution
-of the entire universe which assumes diverse forms through the
-encrustations of Illusion,—whose exact nature is indicated by such
-*Śruti* texts as—‘The Self is to be seen, to be listened to, to be
-meditated upon,’ and so forth.
+The word ‘*Dharma*’ here is not restricted to the sense of *sacrifice*
+and such other acts (prescribed by the Veda); it stands for the
+*characteristic* of things in general. The meaning thus is that in each
+Cycle, the character of things varies, as shown before (in verses 83 and
+84); just as, for instance, the character of things during the Spring is
+of one kind, of a different kind during the Summer, and of yet another
+kind during the Rains,—so it is in connection with the Cycles also.
 
-Now of these two, the Knowledge of the Soul comes useful în the
-performance of acts. If there were no such entity, distinct from the
-body and other things, the experiencer of effects appearing after
-death,—then all injunctions relating to Heaven as the desired result and
-such others would be meaningless; and no one would undertake these acts;
-hence the said knowledge is of use in this.
-
-As for the knowledge of the one Supreme Self, which is attained by
-long-continued meditation and service, it would be useful in the
-attaining of the realisation of the Self in its pristine nature, pure,
-enlightened, free, blissful, eternal and imperishable.
-
-‘*It is the bent of all Sciences, as Immortality is attained by its
-means*.’
-
-‘*Immortality*’ stands for the cessation of transmigration.—‘*By its
-means*’—‘its’ referring to ‘Science,’ stands for the ‘Science’ or
-Knowledge of the *Supreme Self*; its the Knowledge of the individual
-Soul, being useful in the performance of acts, could not bring about
-Immortality; hence it must stand for the realisation of the True Self,
-including all that is dual and nondual, which has been taught in the
-Vedānta texts.—(84-85)
+By ‘*difference*’ it is not meant that things cease to bring about
+effects that they are found (at one time) to produce, and bring about
+other effects; what is meant is that they become incapable of bringing
+about their complete effects; and this by reason of the decrease in
+their potency. This is what is meant by the phrase—‘*this being due to
+the deterioration of each succeeding Cycle*,’—‘*deterioration*’ meaning
+*inferiority*.—(85).
 
 

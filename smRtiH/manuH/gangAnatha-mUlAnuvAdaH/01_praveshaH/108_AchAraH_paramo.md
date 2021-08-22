@@ -2,5 +2,4 @@
 title = "108 आचारः परमो"
 
 +++
-
-If the question should arise—“How should it be in regard to those points upon which the laws have not been declared?”—[the answer is]—what the cultured Brāhmaṇas declare, that shall be the undoubted law.—(108)
+Morality [Right Behaviour] is highest Dharma; that which is prescribed in the śruti and laid down in the Smṛti. hence the twice-born person, desiring the welfare of his soul, should be always intent upon Right Behaviour.—(108)

@@ -2,15 +2,18 @@
 title = "100 सर्वं स्वम्"
 
 +++
-This is an exaggerated praise.
+Having raised the question that, if the Brāhmaṇa happen to be
+discontented and should again undertake to receive gifts, he would incur
+sin,—the Author offers his answer to it in this verse.
 
-‘*Adjudicator of punishments*’—the officer who, in villages and cities,
-fixes the punishments upon men; who is appointed to look after what
-people do and what they do not know.
+‘*All this*’—*i.e.*, whatever wealth exists in the three worlds—‘*is the
+property of the Brāhmaṇa*’; so that for him there can he no ‘acceptance
+of gifts’; what he takes possession of, he does by virtue of his being
+its possessor, and not as the receiver of a gift.
 
-‘*Army*’—consisting of elephants, horses, chariots and
-foot-soldiers;—the ‘*Commander*’ of all this.
+This is mere praise, not an injunction; hence we have the word
+‘*deserves*’.
 
-‘*Kingly authority*’—royal authority over a small circle.
+‘*Noble birth*’—high hirth, superior character. (100). VERSE CI.
 
-‘*Sovereignty over all men*’—the status of the Emperor.—(100)
+

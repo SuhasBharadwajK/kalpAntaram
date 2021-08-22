@@ -3,4 +3,4 @@ title = "016 तेषान् त्व्"
 
 +++
 
-In the case of misbehaved persons, there is produced out of five constituents, another strong body, for the suffering of torments, after death.—(16)
+Having combined the subtile components of the said six principles of illimitable potency with their own evolutes, he created even all beings.—(16)

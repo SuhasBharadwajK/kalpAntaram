@@ -3,4 +3,4 @@ title = "109 आचाराद् विच्युतो"
 
 +++
 
-Those Brāhmaṇas, by whom the Veda, along with its supplements, has been learnt in the right manner, and who are guided directly by the revealed texts,—shall be regarded as ‘cultur ed.’—(109)
+The Brāhmaṇa who departs from Right Behaviour, does not obtain the fruit of the Veda; he however who is equipped with Right Behaviour obtains the full reward.—(109)

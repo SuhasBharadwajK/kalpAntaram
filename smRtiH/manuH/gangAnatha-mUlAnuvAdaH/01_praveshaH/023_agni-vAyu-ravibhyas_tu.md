@@ -3,4 +3,4 @@ title = "023 अग्नि-वायु-रविभ्यस् तु"
 
 +++
 
-Having recognised, in his own mind, the conditions of the Personality, due to Virtue and Vice, one should fix his heart upon Virtue.—(23)
+From out of (the three deities) Agni, Vāyu and Ravi, he extracted, for the due fulfilment of sacrifices, the eternal Brahman, threefold, in the forms of ‘Ṛk,’ ‘Yajuṣ’ and ‘Sāman.’—(23)

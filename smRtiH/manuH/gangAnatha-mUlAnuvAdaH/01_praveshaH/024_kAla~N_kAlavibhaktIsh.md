@@ -3,4 +3,4 @@ title = "024 कालङ् कालविभक्तीश्"
 
 +++
 
-Know Sattva, Rajas and Tamas to be the three qualities of the Self, by means of which the Great One completely pervades all these beings.—(24)
+[He created] also Time, the Divisions of Time, the Lunar Mansions, the Planets, the Rivers, the Oceans, the Mountains and the tracts of land, plain and rugged.—(24)

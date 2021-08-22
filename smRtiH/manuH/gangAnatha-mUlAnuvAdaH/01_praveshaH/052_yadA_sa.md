@@ -3,4 +3,4 @@ title = "052 यदा स"
 
 +++
 
-Foolish men of the lowest class go through the vilest migratory states, in consequence of being addicted to the senses and by not attending to duties.—(52)
+When that divine being is awake, then this world is active; when he slumbers, with his mind in calm repose, then all vanishes.—(52)

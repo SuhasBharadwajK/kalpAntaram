@@ -2,5 +2,4 @@
 title = "113 वृत्तीनां लक्षणम्"
 
 +++
-
-That which even a single Brāhmaṇa learned in the Veda decides to be the law, shall be understood to be the highest law,—and not what is asserted by ten thousand ignoramuses.—(113) 
+The description of the means of livelihood,—the observances of the initiated Householder,—lawful and forbidden food,—Purification,—the cleansing of things.—(113)

@@ -3,4 +3,4 @@ title = "073 तद् वै"
 
 +++
 
-In the proportion that sensually-inclined persons go on indulging in sensual pleasures, in that same proportion their ardour for them goes on increasing.—(73)
+Those who know the ‘Day of Brahmā’ as ending with the (said) thousand ‘time-cycles,’ and the ‘night’ also as of the same extent,—are people who alone know what is ‘day and night’, and acquire merit.—(73) 

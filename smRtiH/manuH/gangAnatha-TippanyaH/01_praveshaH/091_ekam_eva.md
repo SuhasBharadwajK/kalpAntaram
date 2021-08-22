@@ -2,9 +2,6 @@
 title = "091 एकम् एव"
 
 +++
-‘*Ātmayājī*’.—‘Who realises the presence of all deities in himself’
-(Medhātithi and Govindarāja);—‘he who performs the Jyotiṣṭoma and other
-sacrifices in the manner of the Brahmārpana’ (Kullūka and Nandana and
-Rāghavānanda).
-
-
+This verse is quoted in the *Vīramitrodaya* — *Paribhāṣā*, p. 45;—and in
+the *Varṣakriyākaumudī* (p. 568), which explains ‘*Prabhuḥ*,’ ‘as
+Brahmā,’ and ‘*Anasūyayā*’ as ‘without dishonesty.’

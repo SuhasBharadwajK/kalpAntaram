@@ -3,4 +3,4 @@ title = "009 तद् अण्डम्"
 
 +++
 
-Through sinful acts due to the Body, man becomes inanimate; through those of Speech, a bird or a beast; and through those of Mind, he is born in the lowest caste.—(9)
+That became the golden egg, resplendent like the Sun; in that (egg) he (Hiraṇyagarbha) himself was born as Brahmā, the ‘Grand-father’ of the whole world.—(9)

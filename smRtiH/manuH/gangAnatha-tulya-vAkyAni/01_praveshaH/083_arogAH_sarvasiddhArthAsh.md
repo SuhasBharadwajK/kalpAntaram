@@ -2,9 +2,8 @@
 title = "083 अरोगाः सर्वसिद्धार्थाश्"
 
 +++
-[\[See XXXI
-above.\]](/hinduism/book/manusmriti-with-the-commentary-of-medhatithi/d/doc202211.html#comparative-notes)
+**(Verse 81-86)  
+**
 
-*Yājñavalkya* (3.190).—‘Expounding of the Veda, performing of
-sacrifices, Celibacy, Austerity, Self-control, Faith, Fasting and
-Independence are the means of acquiring the knowledge of the Self.’
+See Comparative notes for [Verse 1.81 (Dharma in the
+Kṛta-yuga)](/hinduism/book/manusmriti-with-the-commentary-of-medhatithi-volume-3/d/doc145520.html#comparative-notes).

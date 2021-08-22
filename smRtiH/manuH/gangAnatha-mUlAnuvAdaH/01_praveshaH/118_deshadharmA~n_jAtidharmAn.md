@@ -3,4 +3,4 @@ title = "118 देशधर्माञ् जातिधर्मान्"
 
 +++
 
-With a concentrated mind, one should perceive in the Self all things, real as well as unreal. One who perceives all things in the Self never turns his mind towards wrong.—(118)
+The eternal laws op countries, duties op castes and laws of dynasties,—also the laws relating to heretics and to guilds,—all this manu has expounded in these Institutes.—(118)

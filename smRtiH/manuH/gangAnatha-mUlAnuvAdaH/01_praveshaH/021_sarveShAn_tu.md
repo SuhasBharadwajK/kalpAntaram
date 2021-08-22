@@ -3,4 +3,4 @@ title = "021 सर्वेषान् तु"
 
 +++
 
-If on the other hand he practises vice for the most part, and virtue only in a small degree,—then, becoming deserted by those substances, he suffers the torments inflicted by Yama.—(21)
+At the outset he designated distinct names for add things; and devised acts and Laws, on the basis of the words of the veda.—(21)

@@ -2,32 +2,51 @@
 title = "018 तद् आविशन्ति"
 
 +++
-‘*Attachment to sensual objects*’—being addicted to such things as are
-forbidden. From this arise ‘*evils*’—the results of sins;—having
-experienced the hellish torments, which constitute these ‘evils’—the men
-have their ‘*sins* *destroyed*’—guilt removed,—by that
-experience,—‘*approaches those two Glorious Ones*.’
+‘*That*,’ ‘Primordial Matter—is ‘the generator of all things’:—it is
+‘*imperishable*,’ *i.e*., in its original (causal) form it is
+indestructible.
 
-“Which two? In fact the ‘Great Principle’ and the ‘Conscious Being,’
-which form the subject-matter of the present context; but from the next
-verse it appears that it is the Conscious Being who experiences
-pleasures and pains; so that the term ‘*he*’ of the text must stand for
-that being. And thus the meaning comes to be that ‘this Conscious Being
-approaches the same Being,’ which is absurd: the ‘approached’ and the
-‘approacher’ being the same.”
+“In what way does Primordial Matter *generate* all things?”
 
-True; but the difference intended is an assumed one. In fact, what is
-meant by ‘*approaching*’ is that ‘the said Being is all that remains of
-the man’; the sense being that as the ‘Conscious Being,’ he was invested
-with the aggregate of the ‘life-breath and other accessories, called the
-‘Great Principle,’ but after having experienced the results of his
-misdeeds, he becomes divested of it, and remains in the form of the pure
-‘Conscious Being,’—who has his abode in the Subtle Body only.
+Because all these *enter into it*.
 
-Others explain the ‘*two Glorious Ones*’ as standing for the Great
-Principle and the Supreme Self.
+“What are *all these* that enter into it?”
 
-‘*Conducive to misery*.’—It is only after the sins have been destroyed
-that one experiences pleasure; so long as adverse sins are there, even
-in the slightest degree, there can be no pleasure; just as when there is
-slightest indigestion, there is no pleasure in eating anything.—(18)
+First of all ‘*the Mind along with its subtile components*,’—*i.e*.,
+along with the Rudimentary Substances, the Principle of Intelligence,
+the Principle of Egoism and the Sense-organs;—and then, the *Great
+Elemental Substances*—called ‘Earth,’ ‘Water,’ ‘Fire,’ ‘Wind,’ and
+‘Ākāśa;’—‘*along with their functions*;—
+
+1.  sustaining,
+2.  conglutination,
+3.  cooking,
+4.  configuration
+5.  and making room (unobstruction) respectively are the ‘functions’ of
+    Earth, &c.
+
+Of these
+
+1.  ‘sustaining’ means upholding, keeping in their places, things that
+    are prone to falling;
+2.  ‘conglutination’ means bringing together things that are loose and
+    disjointed; *e.g*., loose and disjointed dust-particles are brought
+    togther, cemented into, a mass by means of water;—
+3.  ‘Cooking’ is the well-known effect produced by fire upon such
+    tilings as medicine and herbs, &c.;
+4.  ‘Configuration’ means conformation, shaping;—
+5.  ‘making room’ means non-obstruction by another body; in a point in
+    space where one body is already present, there can be no room for
+    another body; *e.g*., no object can find room within a piece of
+    gold.
+
+‘*Mind*’—is meant to indicate all the organs of sensation; and the term
+‘*Karma*’ may be taken as referring to the organs of action; or again,
+in the first line of the text, the term ‘*Karma*’ may be taken to mean
+the ‘products’ of the elementary substances; the sense of the passage
+being that ‘subsequently the products of the elemental substances, along
+with the subtile components, enter into the great elemental
+substances’—‘as also do the organs of sensation,’ this latter being
+indicated by the word ‘*Mind*.’—(18)
+
+

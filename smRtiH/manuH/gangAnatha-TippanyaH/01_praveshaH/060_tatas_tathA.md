@@ -2,7 +2,5 @@
 title = "060 ततस् तथा"
 
 +++
-This verse is quoted in *Parāṣharamādhava* (Prāyaścitta p. 492 and p.
-511).
-
-
+With this verse ends the *Introductory Section* of the work, describing
+the Origin of the Law and the authorship of the ordinances.

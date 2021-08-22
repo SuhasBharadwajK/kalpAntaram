@@ -3,4 +3,4 @@ title = "065 अहोरात्रे विभजते"
 
 +++
 
-For stealing excellent perfumes, a musk-rat; for stealing vegetables with leaves, a peacock; for stealing cooked food of various kinds, a Śvāvit; and for stealing uncooked food a hedge-hog.—(65)
+The Sun divides the ‘Day’ and ‘Night’ of Men and Gods; [of others] what is conducive to the repose of beings is ‘Night,’ and what is conducive to activity is ‘Day.’—(65)

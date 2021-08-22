@@ -3,4 +3,4 @@ title = "031 लोकानान् तु"
 
 +++
 
-Vedic study, austerity, knowledge, purity, control over the organs, practice of virtue and meditation on the Soul,—are the characteristics of the quality of ‘Sattva.’—(31)
+With a view to the development of the (three) regions, He brought into existence the Brāhmaṇa, the Kṣatriya, the Vaiśya and the Śūdra, from out of His mouth, arms, thighs and feet (respectively).—(31)

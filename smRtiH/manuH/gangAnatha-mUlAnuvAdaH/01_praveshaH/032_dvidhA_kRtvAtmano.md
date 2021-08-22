@@ -3,4 +3,4 @@ title = "032 द्विधा कृत्वात्मनो"
 
 +++
 
-Proneness to undertake work, impatience, commission of improper acts, constant addiction to sensual objects are the characteristics of the quality of ‘Rajas.’—(32)
+Having divided his body into two halves, with the one half, the Lord became Male, and with the other half, Female; from her he produced Virāj.—(32)

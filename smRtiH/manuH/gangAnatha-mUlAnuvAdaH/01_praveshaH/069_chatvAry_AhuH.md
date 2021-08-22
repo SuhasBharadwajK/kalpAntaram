@@ -3,4 +3,4 @@ title = "069 चत्वार्य् आहुः"
 
 +++
 
-For stealing things, women also should incur guilt on this same principle; they become the female of those same creatures that have been named.—(69)
+They say that four thousnd ‘years’ are what is the ‘Kṛta-cycle’; as many hundred ‘years’ form the ‘Juncture’ (Morning); and of equal measure is the ‘Juncture-end’ (Evening).—(69)

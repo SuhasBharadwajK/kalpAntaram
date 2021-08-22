@@ -2,28 +2,33 @@
 title = "049 तमसा बहु-रूपेण"
 
 +++
-Words composed in a certain order are called ‘*Veda*.’
+They are ‘*invested*,’ pervaded over, by that ‘Darkness’ (Inertia) of
+which the cause is ‘*action*,’ in the form of *vice*;—‘*manifold*,’
+being the cause of the experiencing of various kinds of pain. As a
+matter of fact, all things are made up of three Constituent Attributes;
+so what is meant is that in the beings here described the Attribute of
+‘Darkness’ is in excess, and those of ‘Harmony’ and ‘Energy’ are present
+in less degrees; hence as abounding in ‘Darkness’ (Inertia), and beset
+with pain and humiliation, they continue, for a long time, to experience
+the results of their vicious acts.
 
-“In the course of the *states of existence*, what occasion is there for
-the mention of *insentient* things? Words and other things are all
-*insentient*.”
+In as much as the Attribute of ‘Goodness’ (Harmony) also is present in
+them, they do enjoy, in certain conditions, small measures of pleasure
+also; it is in view of this that they are described as ‘*affected by
+pleasure and pain*.’
 
-“It is too little when you say that words and other things are
-inanimate. All the beings, from the gods down to the immoveable things,
-exist in the form of *bodies*, and all bodies are insentient. As for the
-sentient faculty, it appears in the form of personal consciousness,—and
-this Personality, by itself, is devoid of qualities. But the body,
-though insentient, comes to be regarded as sentient when it is inhabited
-by the Personality.
-
-Thus what the text means comes to this:—The Veda abounds in the quality
-of ‘*Sattva*;’ hence by its study, people attain to the state partaking
-of the quality of ‘Sattva.’ And ‘the attaining of the state partaking of
-Sattva’ does not mean that the man abounding in ‘Sattva’ *become the
-Veda*.
-
-The view of other people is, that in all things there is a conscious
-being supervising over them, and ‘personalities of the Veda’ are
-described as residing in the regions of Varuṇa.—(49)
-
-
+‘*Possessing inner consciousness*,’—the term ‘*saṃjñā*’ stands for
+*Buddhi*, Intelligence (Consciousness); and in as much as activity in
+the form of going out, speaking and the like,—which are the effects
+indicative of the presence of consciousness,—is absent (in Trees), they
+are described as ‘*possessing inner consciousness*.’ This must be the
+meaning of the epithet ‘*inner*’; as otherwise, since every person
+exercises consciousness only *within* himself \[there would be no point
+in the epithet at all\]. Or, the meaning may be that plants are unable
+to have any cognisance of the prickings of thorns and other small
+things, to the extent that human beings are; in fact for the
+experiencing of pain they stand in need of such massive strokes as
+*cutting with the axe* and the like;—being, in this respect, like
+animate beings in the state of sleep, intoxication or swoon. \[Which
+shows that plants have their consciousness lying far deeper within than
+in animals.\]—(49)

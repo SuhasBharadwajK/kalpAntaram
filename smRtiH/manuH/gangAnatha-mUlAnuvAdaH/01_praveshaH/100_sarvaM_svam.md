@@ -3,4 +3,4 @@ title = "100 सर्वं स्वम्"
 
 +++
 
-It is only one who knows the Vedic lore that deserves the command over armies, Kingly authority, the office of the adjudicator of punishments and sovereignty over all men.—(100)
+Whatever is contained in this world is all the property of the Brāhmaṇa; the Brāhmaṇa verily deserves all by virtue of his superiority and noble birth. (100).

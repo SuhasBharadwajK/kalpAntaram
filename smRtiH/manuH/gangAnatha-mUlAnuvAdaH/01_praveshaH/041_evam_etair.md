@@ -3,4 +3,4 @@ title = "041 एवम् एतैर्"
 
 +++
 
-This threefold Migratory State due to the qualities should be understood to be again of three kinds each—high, low and middling, in accordance with the peculiar character of the act and knowledge of each man.—(41) 
+In this manner was all this, movable and immovable, called into being, through the force of austerities, by these high-souled sages, under my direction,—in accordance with their actions.—(11)

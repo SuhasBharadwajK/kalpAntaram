@@ -3,4 +3,4 @@ title = "104 इदं शास्त्रम्"
 
 +++
 
-Austerity and knowledge are conducive to the Highest Good of the Brāhmaṇa; by Austerity he destroys sins and by Knowledge he attains immortality.—(104)
+The Brāhmaṇa studying these institutes, and (thence) discharging all prescribed duties, is never defiled by sins of commission (or omission), proceeding from mind, speech or body.—(104)

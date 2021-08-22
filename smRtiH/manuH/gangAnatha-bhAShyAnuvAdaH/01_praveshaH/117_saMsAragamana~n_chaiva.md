@@ -2,15 +2,21 @@
 title = "117 संसारगमनञ् चैव"
 
 +++
-‘*The blessed Lord*’—Manu—propounded these Ordinances for the ‘*benefit
-of mankind*.’ This is what Bhṛgu says to his pupils.
+‘*Saṃsāragamana*,’—the property, ‘*saṃsāra*,’ ‘*series of births and
+deaths*,’ stands here for the possessor of the property, *i.e*., the
+personality or *Soul*, undergoing births and deaths;—the ‘*gamana*’ of
+that is its migration from one body to another.—Or, ‘**saṃsā*ra*’ may be
+taken as standing for the objects of the world, *i.e*., the three
+Regions of the Earth, etc.;—the ‘*gamana*’ is *being born* in those
+regions, as described before.—‘*Threefold*,’ high, low and
+middling.—‘*Arising from actions*’—brought about by good and bad deeds.
 
-This sets at rest all doubts regarding persons entitled to seek for
-knowledge.
+‘*Highest good*’—the work describes not only the conditions brought
+about by deeds, but also that higher than which there is
+nothing,—*i.e*., spiritual knowledge,—the means of attaining that also
+has been described.
 
-‘*Secret*’— the true philosophy of the Self also, the revered Manu has
-disclosed to me; and I also have disclosed it to you just as I heard it.
-So that you should not seek for any further knowledge on the
-subject.—(117)
+‘*Of actions*’—*i.e*.. those that are enjoined and those that are
+prohibited,—‘*the examination of the good and bad features*.’—(117)
 
 

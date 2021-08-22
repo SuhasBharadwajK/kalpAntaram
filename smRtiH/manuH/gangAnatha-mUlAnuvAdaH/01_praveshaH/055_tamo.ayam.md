@@ -3,4 +3,4 @@ title = "055 तमो ऽयम्"
 
 +++
 
-He who kills a Brāhmaṇa enters the womb of a dog, a pig, an ass, a camel, a cow, a goat, a sheep, a deer or a bird, or that of a Caṇḍāla or a Pukkasa.—(55)
+This (individual Soul), on entering into ‘Darkness,’ remains, for a long time, equipped with the sense-organs, but does not perform its functions; then it departs from the body.—(55)

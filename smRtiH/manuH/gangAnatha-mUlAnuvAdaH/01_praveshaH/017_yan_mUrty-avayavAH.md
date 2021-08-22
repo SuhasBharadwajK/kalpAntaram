@@ -3,4 +3,4 @@ title = "017 यन् मूर्त्य्-अवयवाः"
 
 +++
 
-After they have suffered, through this body, the torments inflicted by yama, those constituents become dissolved into each of those same material elements.—(17)
+Because the six subtile components of the frame (of primordial matter) enter into (produce) these, therefore the wise ones have described the frame of that (primordial matter) as ‘body.’—(17)

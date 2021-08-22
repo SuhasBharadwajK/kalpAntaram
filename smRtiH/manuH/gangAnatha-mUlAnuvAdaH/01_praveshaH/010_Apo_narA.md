@@ -3,4 +3,4 @@ title = "010 आपो नरा"
 
 +++
 
-Control over Speech, control over the Mind and control over the Body,—the man in whose heart these are firmly fixed is called ‘the man of triple control.’—(10)
+Water is called ‘nara,’—water being the offspring of nara; since water was the first thing created by (or, the original residence of) that being, he is, on that account, described as ‘nārāyaṇa.’—(10)

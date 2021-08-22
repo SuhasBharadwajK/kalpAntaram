@@ -3,4 +3,4 @@ title = "090 पशूनां रक्षणम्"
 
 +++
 
-He who devotes himself to the ‘active’ side, attains equality to the gods; while he who devotes himself to the ‘passive’ section, passes beyond the five material substances.—(90)
+For the Vaiśya, tending of cattle, giving of gifts, sacrificing and studying; as also trade, money-lending and cultivating of land. (90).

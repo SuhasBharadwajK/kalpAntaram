@@ -2,17 +2,18 @@
 title = "052 यदा स"
 
 +++
-‘*Addiction to the senses*’—This stands for doing what is forbidden.
+‘*When that Divine Being is awake*—*i*. *e*., when he wills, that ‘this
+world may come into being and may continue to exist for such a
+time,’—‘*then this world is active*’; that is, it becomes accompanied by
+such internal activities as mental, verbal and material, and such
+external activities as inspiration, respiration, eating, walking,
+cultivation, sacrifice and so forth.
 
-‘*Not attending to duties*’— not doing what has been enjoined.
+‘*When he slumbers*’—when his will desists from the creation and
+maintaining of the world,—‘*then* *all vanishes*,’ undergoes absorption.
 
-All this is found only in the case of ‘*foolish*’ men; who are, on that
-account, called ‘*men of the lowest class*.’
+‘Waking’ and ‘sleeping’ here stand respectively for the *prevalence* and
+*cessation* of his will.
 
-These men ‘*go to*’—fall into—‘*the vilest migratory states*’—most
-despicable births.
-
-In accordance with this general principle, the retribution of deeds is
-now explained.—(52)
-
-
+‘*With his mind in calm repose*’—means that he has withdrawn from his
+state of diversity.—(52)

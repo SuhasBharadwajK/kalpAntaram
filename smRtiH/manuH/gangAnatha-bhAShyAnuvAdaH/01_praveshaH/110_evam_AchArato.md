@@ -2,22 +2,13 @@
 title = "110 एवम् आचारतो"
 
 +++
-That in which there are at least ten men;—if more cannot be brought
-together, there should be at least ten.
-
-If this be not possible, there should be *at least three*.
-
-‘*Firm in their duty*.’—This is a reference to what has been [said under
-2.13](/hinduism/book/manusmriti-with-the-commentary-of-medhatithi/d/doc145586.html).
-
-What is meant to be emphasised here is not the *number*, but the
-*qualification*; as in clear from what is going to be said in Verse 113
-below, regarding ‘even a single Brāhmaṇa learned in the Veda, etc.,
-etc.,’ and the larger numbers are mentioned only in view of the fact
-that it may be difficult to find any single person possessed with all
-the requisite qualifications.
-
-The qualifications for membership of the Assembly are next
-enumerated.—(110)
-
-
+‘*Of all Austerity*,—*i.e*. Breath-control, silence, observances,
+self-control, and the busts of ‘*Kṛcchra*, *Chāndrā* *yaṇa*, and also
+absolute Fasting’;—of all this ‘Austerity,’ Right Behaviour is ‘*the
+root*,’—the direct cause, leading to the growth of their fruit.—For the
+reason given, the *sages regarded*, accepted, it as being the
+*root*,—*i.e*. the cause,—of Austerity, performed by men desiring
+results.—‘*Having seen that virtue is got at*,’—acquired—‘*from Right
+Behaviour*.’—However difficult the Austerity performed, it is not
+fruitful for the man that is without Right Behaviour so says the
+*Śruti*.—(111).

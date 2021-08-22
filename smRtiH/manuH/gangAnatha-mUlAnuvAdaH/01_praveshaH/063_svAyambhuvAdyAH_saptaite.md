@@ -3,4 +3,4 @@ title = "063 स्वायम्भुवाद्याः सप्तैत
 
 +++
 
-For stealing meat, a vulture; for stealing fat, a cormorant; for stealing oil, a ‘Tailapāyika’ bird; for stealing salt, a Cīrīvāka; and for stealing curds, a ‘Balākā’-bird.—(63)
+These seven almighty Manus, of whom Svāyambhuva is the first, having called into existence the whole of this world, consisting of movable and immovable beings, sustained it, each during his own regime.—(63)

@@ -2,81 +2,60 @@
 title = "019 तेषाम् इदम्"
 
 +++
-“If the ‘*two*’ be meant to be the ‘Great Principle’ and the ‘Conscious
-Being,’ then, for whom does the term ‘*his*’ stand?”
+All that is meant by saying that ‘*the perishable proceeds from the
+imperishable*’ is that the Gross is produced out of the Subtile; and it
+is not meant to emphasise whether it is produced out of the particles of
+*six* or *seven* Principles; in fact there are twenty-four Principles,
+all of which form the cause of the origin of all things. Or, the meaning
+may be that in the production of the gross oḥjeot only seven Principles
+form the principal cause, *e.g*., the six non-differentiated Principles
+(the live Rudimentary Substances and the principle of Egoism) and the
+seventh, the Great Principle of Intelligence. Out of these (seven) are
+produced the Elemental Substances and the Organs; and when these latter
+have been produced, the gross body becomes formed.
 
-Some people hold that this latter term stands for the ‘Soul’ (*Jīva*).
+\[It has been said that\] from out of the imperishable Primordial
+Matter,—which in its unified form, contains within itself the
+possibilities of all its evolutes,—is produced this world, which is
+multifarious in its character and appears in all possible forms.
 
-But it has already been said that the ‘Soul’ is the same as the
-‘Conscious Being.’
+Now the question arises—Docs the Primordial Matter become modified into
+all its gross evolutes at one and the same time? And the answer to this
+is ‘No;’ what really happens is described in the present verse—‘*From
+out of the subtile*, &c., &c.,’ The order in which the things are
+produced is the same as that which has been described before: that is,
+from out of Primordial Matter is produced the Great Principle of
+Intelligence;—from this latter the Principle of Egoism; and from this
+latter again the ‘group of sixteen’ (*kārikā*, 22).
 
-Another view is that ‘*his*’ stands for the *Subtle Body*. But this also
-is the same as the ‘Great Principle.’
+The term ‘*Puruṣa*’ has been used in the sense of the *Principles*, on
+the ground that these latter subserve the purposes of the *Puruṣa*
+(Soul).
 
-The third view is that it stands for the *Internal Organ*, consisting of
-the ‘Intelligence’ (*Buddhi*) and the rest.
+‘*Exceedingly potent*’—capable of producing their effects; it is because
+they are the cause of innumerable products that they have been called
+‘*exceedingly*.’
 
-But in this case, it will have to be explained what connection there is
-between this Internal Organ and ‘Merit—Demerit.’ For the said organ is
-nothing more than a subtle form of Matter; as was made clear under 1.19.
+The said principles have certain ‘*subtile constituents of their
+frames*’;—‘*mūrti*’ is *frame*; the constituents that go to form that
+frame are called ‘*constituents of the frame*’; from out of these is
+born ‘*this*’ (the gross Body). It is in reference to this that it is
+added—‘*the perishable proceeding out of the imperishable*.’
 
-For all these reasons what we think is that the right explanation is to
-take the term ‘*two*’ as standing for the ‘Great Principle’ and the
-‘Supreme Self,’ in accordance with the explanation provided by some
-people of the term ‘two’ (in Verse 18); as it is only for these two that
-the act of ‘looking into’ is possible;—the ‘Great Principle,’ which is
-really an *instrument* (of perception) being figuratively spoken of as
-the *nominative agent*; just as in the case of such expressions as
-‘Fuels are cooking.’ And the term ‘*his*’ would, in this case, refer to
-the ‘Conscious Being,’ as apart from the ‘Great Principle’ and the
-‘Supreme Self.’
+*Question*—“What are the ‘*subtile* constituents’ of the said
+Principles? Certainly the Rudimentary Substances have no other
+‘constituents’ (save those that are *subtile*), in reference to (for the
+exclusion of) which such specification could be possible (as that
+intended by the epithet ‘subtile’).”
 
-And when the ‘Supreme Self’ is spoken of as ‘looking into’ the ‘*merit
-and demerit*’ belonging to the ‘Conscious Being,’ what is meant is that
-all experiencing of pleasure and pain is under the control of that
-Supreme Being. This is what has been asserted in the following
-passage:—‘Impelled by the Supreme Lord one may go either to Heaven or to
-the bottomless pit’;—where ‘impelling’ can stand only for ‘wish as
-regulated by the merit and demerit of the man.’
+*Answer*—The qualification ‘subtile' is not in relation to the
+constituents of any single Principle itself; what is meant is that (one
+principle is ‘subtile’ in relation to, in comparison to, another,
+*i.e*.) the Great Principle of Intelligence is subtile as compared to
+the Rudimentary Substances, and the Root Evolvent (Primordial Matter) is
+‘subtile’ as compared to the Great Principle.
 
-“But if the man’s merit and demerit were to regulate the wish of God,
-then this would deprive God of his very character of the Supreme Lord.”
-
-This has been explained in the *Śārīraka* that the ease of God a warding
-happiness and unhappiness in accordance with the merit and demerit of
-the man stands on the same footing as the King bestowing his rewards in
-accordance with the nature of the services rendered by each man,—which
-fact does not deprive him of his kingly power. This is what is meant by
-the ‘Great Principle’ and the ‘Supreme Self’ ‘looking into’ the merit
-and demerit—of the ‘Conscious Being.’
-
-“This cannot be right; as it would be inconsistent with what
-follows—‘*invested with which he obtains, etc*.’ Because no one is ever
-spoken of as ‘invested’—connected—with the Supreme Self. In fact, there
-can be no sort of connection with the Supreme Self.”
-
-It is for this reason that the phrase ‘*with which both*’ of the text
-should he taken as referring, not to the ‘Great Principle’ and the
-Supreme Self, but to Merit and Demerit; and these latter also form the
-subject-matter of the context (and as such can be referred to by the
-pronoun in question) as is clear from the sentence—‘*they look into his
-merit and demerit*.’
-
-If the term ‘Great Principle,’ (‘*mahat*’), be taken as standing for the
-Internal Organ, then there would certainly be an incongruity, as the
-Supreme Self does not stand in need of an *Instrument* for his
-perceptions.
-
-“Under Verse 18, however, the Supreme Self, which is of the nature of
-true Consciousness, has been spoken of as being *approached*;—now what
-sort *o* *f approaching* would this be? If it meant *becoming one with
-him*, then this could not be brought about merely by the destruction of
-sins. If, on the other hand, it meant *capability of reaching him*, then
-this could not be possible for one who has become deprived of his body
-by the dissolution of the constituent material particles.”
-
-It is for this reason that in the sentence ‘*the two look into his merit
-and demerit*,’ the term ‘*his*’ must be taken, as shown above, as
-standing for the Self (personal).—(19)
+\[Another explanation of the verse is given below, in the form of an
+introduction to verse 20\].—19
 
 

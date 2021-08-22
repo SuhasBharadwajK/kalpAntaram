@@ -3,4 +3,4 @@ title = "027 अण्व्यो मात्रा"
 
 +++
 
-Whenever one perceives in himself something full of bliss, calm and pure,—he should know it to be ‘Sattva.’—(27)
+The evanescent subtile constituents of the half-ten (Elemental Substances) that have been described,—along with those, this whole (world) comes forth, in due order.—(27)

@@ -2,22 +2,16 @@
 title = "048 गुच्छ-गुल्मन् तु"
 
 +++
-‘*Ascetics*’—the Recluse and others devoted to austerities.
-
-‘*Hermits*’—wandering mendicants, and the rest.
-
-This shows that the said state belongs to people, not only by birth, but
-by conduct also because there are no such species by birth as
-‘*ascetics*’ and the rest; in fact the names are based upon what the men
-do.
-
-Others, however, think that there are a people known as ‘*Yatis*,’
-‘Hermits,’ inhabiting the Meru mountain; as is clear from what we read
-regarding ‘India having made over the Yatis to the Sālāvṛkas.’
-
-‘*Vimānas*’—celestial cars, Puṣpaka, and the rest; those who move about
-in these are ‘*Vaimānikas*,’ ‘*celestial beings*,’ denizens of heaven.
-
-‘*First*’—lowest—(48)
+‘*Clumps and Thickets*’—is the name given to the cluster of those shoots
+that grow together in large numbers, having one or several roots, and do
+not attain any considerable height; *e.g*., Copses and the like. Or
+‘*guccha*’ ‘Clump’ and ‘*gulma*’ ‘thicket’ may be taken as two different
+things; the difference between the two being that, while one bears
+flowers, the other is flowerless.—Other ‘*species of grass*—*e. g.,
+kuśa, śādbala, śaṅkhapuṣpī* and so forth.—*Lowspreading tendrils*—the
+long shoots of grass spreading on the ground.—‘*Creepers*’—are those
+shoots that grow out of the earth and clinging round a tree or some
+other object, rise upwards.—All these, like trees, ‘*grow out of seeds
+and slips*’—(48)
 
 

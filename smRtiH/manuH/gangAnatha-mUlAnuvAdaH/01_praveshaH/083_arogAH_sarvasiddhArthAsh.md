@@ -3,4 +3,4 @@ title = "083 अरोगाः सर्वसिद्धार्थाश्
 
 +++
 
-Vedic Study, Austerity, Knowledge, Control of the Senses, Harmlessness, Service of Elders,—are the best means of attaining the Highest Good.—(83)
+During the Kṛta Cycle, men are free from disease, they have all their aims fulfilled, and their life lasts trhough four hundred years;—During the Tretā and other Cycles, their life becomes shortened, quarter by quarter.—(83).

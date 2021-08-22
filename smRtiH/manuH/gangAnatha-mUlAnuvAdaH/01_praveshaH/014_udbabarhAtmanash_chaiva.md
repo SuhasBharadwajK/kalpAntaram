@@ -2,5 +2,4 @@
 title = "014 उद्बबर्हात्मनश् चैव"
 
 +++
-
-Both of these, the ‘Great Principle’ and the ‘Conscious Being,’ united with the material substances, subsist in Him who resides in all things, pervading them all.—(14)
+From out of himself he brought forth the mind, which partakes of the nature of the existent and non-existent; and before the mind, he brought up the all-powerful principle of egoism, whose function consists in self-consciousness.—(14)

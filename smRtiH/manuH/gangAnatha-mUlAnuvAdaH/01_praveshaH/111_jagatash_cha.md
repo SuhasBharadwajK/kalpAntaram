@@ -3,4 +3,4 @@ title = "111 जगतश् च"
 
 +++
 
-A person learned in the three Vedas, a logician, an investigator, a person knowing the Nirukta, a lawyer and three men belonging to the first three life-stages, shall constitute the ‘Assembly’; which shall consist of at least ten members.—(111)
+The coming into existence of the world,—the rule relating to the sacramental Rites,—the method of keeping observances,—as also the excellent rules bearing upon the Final Ablution.—(111).

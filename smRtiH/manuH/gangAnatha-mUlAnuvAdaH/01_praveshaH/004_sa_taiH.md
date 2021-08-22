@@ -3,4 +3,4 @@ title = "004 स तैः"
 
 +++
 
-Know the mind to be the instigator of all this that is connected with the body, and which is of three kinds, has three substrata and is endowed with ten distinct characteristics.—(4)
+Being thus questioned by the high-souled Great Sages, he, possessed op illimitable vigour, received them with reverence, and with proper courtesy answered them—‘listen.’—(4)

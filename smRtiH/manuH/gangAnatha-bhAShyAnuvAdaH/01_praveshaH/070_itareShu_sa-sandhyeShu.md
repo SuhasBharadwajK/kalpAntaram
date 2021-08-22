@@ -2,14 +2,16 @@
 title = "070 इतरेषु स-सन्ध्येषु"
 
 +++
-If the Brāhmaṇa gives up his own means of livelihood,—such as Teaching
-and the rest,—and takes to the occupations of the Kṣatriya and other
-castes;—similarly if the Kṣatriya and others ‘*deviate from their
-occupations*’;—*they* ‘*migrate into vile migratory states*’—undergoing
-the experiences of animals;—and when they come to be born among men,
-they become servants among ‘*Dasyus*,’—*i.e*., robbers and other harmful
-men.
+Among the three Time-cycles other then the *Kṛta*,—*i.e*. in *Tretā* and
+the rest,—along with their ‘junctures’ and ‘juncture-ends’,—the
+‘thousands’ are reduced (in each) by one; ‘reduction’ means dimunition.
+That is in *Tretā*, the number of ‘thousand,’ is one less than that in
+*Kṛta*; similarly the number in *Dvāpara* is one less than that in
+*Tretā*; and that in *Kali* is one less than that in Thus *Tretā*
+consists of three thousand years, *Dvāpara* of two thousand years, and
+*Kali* of one thousand years. Similarly the number of ‘hundred’ goes on
+diminishing in the ‘junctures’ and ‘juncture-ends’ of the Cycles.
 
-‘*In normal times*’—This is a mere reiteration; since such deviation
-having been permitted in *abnormal times*, there would be no impropriety
-involved in it.—(70)
+‘Time-cycle’, ‘*yuga*’, is the name given to a particular aggregate of
+days; and ‘*Kṛtā*’ and the rest are particular names of the said
+‘Time-cycle’.—(70)

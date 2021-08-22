@@ -3,4 +3,4 @@ title = "060 ततस् तथा"
 
 +++
 
-He who associates with outcasts, he who approaches the wife of another person, and he who has stolen the property of a Brāhmaṇa, become ‘Brahmarākṣasas.’—(60)
+Thereupon, being thus directed by Manu, the great sage Bhṛgu, with a gladdened heart, said to the sages—‘Listen.’—(60)

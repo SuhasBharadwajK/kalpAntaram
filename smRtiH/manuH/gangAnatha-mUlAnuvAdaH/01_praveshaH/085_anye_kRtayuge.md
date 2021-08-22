@@ -3,5 +3,4 @@ title = "085 अन्ये कृतयुगे"
 
 +++
 
-
-[Answer]—Of all these, Knowledge of the Self has been declared to be the most efficacious; since it is the best of all sciences, as Immortality is attained by its means.—(85) 
+During the Kṛta-cycle, the characteristics of men are of one kind,—of different kinds during the Tretā and the dvāpara,—and of yet another kind during the Kali-cycle;—this being due to the deterioration of each suceeding Cycle.—(85) 

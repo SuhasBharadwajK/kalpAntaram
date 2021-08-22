@@ -3,4 +3,4 @@ title = "019 तेषाम् इदम्"
 
 +++
 
-Those two together carefully look into his merit and demerit, invested with which both, he obtains happiness or unhappiness, here and after death.—(19)
+From out of the Subtile constituents of the frames of the said exceedingly potent principles is produced this (Gross Body)—the perishable proceeding from the imperishable.—(19)

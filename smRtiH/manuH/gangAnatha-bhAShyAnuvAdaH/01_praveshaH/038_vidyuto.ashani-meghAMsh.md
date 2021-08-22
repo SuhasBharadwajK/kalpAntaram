@@ -2,24 +2,25 @@
 title = "038 विद्युतो ऽशनि-मेघांश्"
 
 +++
-“There is happiness in pleasure also; so what has been described as the
-characteristic of ‘Sattva’ (under Verso 27, above)—‘when one feels
-bliss, etc., etc.,’ would apply to this also; how then can it be the
-distinguishing feature of ‘Tamas,’ which is of the nature of
-‘stupefaction,’ while in Pleasure, there is keen consciousness, which
-also is a characteristic of ‘Sattva,’ since it has been declared above
-that ‘Sattva is knowledge, etc.’? (26).”
+The semi-brilliant flash of light seen within the clouds is called
+‘*lightning*,’ of which the other names are ‘*Sandāminī*’ and so forth,
+which are based upon certain peculiar characteristics;—‘*Hails*’—
+stone-like finely visible snow-particles, which, propelled by strong
+winds, fall like torrents of rain and destroy corns and other
+things;—‘*Clouds*,’ consist of the combination, in the atmosphere, of
+vapour, water, air and light;—‘*Vertical phosphorescence*,’ is an
+upright mass of violet-colon red luminous matter, occasionally visible
+in the sky; it is seen sometimes attached to the disc of the sun, and
+sometimes in other places also;—a particular Form of the same is called
+‘*Rainbow*,’ which
 
-The answer to the above is as follows:—What is set forth in the present
-verse is not the condition of the *Agent* or of the *object* of
-experience; what is meant is an excessive longing for a certain end; and
-certainly at the time of the *longing*, there is no happiness, since the
-object longed for is not there.
-
-Thus then, whenever a man has an excessive craving for Pleasure, he
-becomes deprived of the power to discriminate between right and wrong,
-and is really in a state of stupefaction. It is this sort of craving
-that is meant by the term ‘pleasure,’—and such desire as for the company
-*of* one’s wife during her ‘season.’—(38)
+differs from the former in being curved in the form of a
+bow;—‘*Meteors*,’ are those stars which are seen to fall as portents
+during twilights and at the advent of night, diffusing their brilliance
+all round;—‘*Portentous sounds*,’ are sounds emanating from the Earth or
+Sky, which are regarded as foreboding calamity;—‘*Comets*,’ the
+well-known stars with protruding crowns, seen during a public
+calamity;—as also various kinds of other stars, *Dhruva, Agastya,
+Arundhatī* and so forth.—(38)
 
 

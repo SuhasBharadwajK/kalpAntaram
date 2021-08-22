@@ -3,4 +3,4 @@ title = "039 किन्नरान् वानरान्"
 
 +++
 
-I am now going to describe, briefly, in due order, those migratory states into which one falls through each quality from among these.—(39)
+[They called into being] Kinnaras, Apes, Fishes, Birds of various kinds, Cattle, Deer, Men and wild beasts with two rows of teeth.—(39)

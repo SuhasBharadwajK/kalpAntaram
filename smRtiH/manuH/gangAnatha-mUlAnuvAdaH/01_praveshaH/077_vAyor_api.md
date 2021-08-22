@@ -3,4 +3,4 @@ title = "077 वायोर् अपि"
 
 +++
 
-Constant births in low forms of life, abounding in misery, afflictions from heat and cold, and terrors of various kinds.—(77)
+After wind, from out of the same Evolvent, emanates the bright and radiant light, the dispeller of darkness; it is said to be endowed with the quality of colour.—(77)

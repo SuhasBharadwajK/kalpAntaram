@@ -2,17 +2,9 @@
 title = "092 ऊर्ध्वन् नाभेर्"
 
 +++
-‘*Even the said acts*.’—This does not sanction the abandoning of such
-acts as the *Agnihotra* and the like; all that is meant to be enjoined
-is that ‘one should concentrate his effort on the knowledge of
-Self’—which prescribes the acquiring of the knowledge of Self.
-
-‘*Having renounced the acts*.’—What the meaning of this phrase is that
-one should concentrate his efforts upon the acquiring of the knowledge
-of Self, even though this might involve the abandoning of such acts as
-the worshipping at certain temples or attending upon elders and so
-forth. This does not however sanction the voluntary renunciation of the
-compulsory rites; but all other rites have to be renounced, without
-which the knowledge of Self cannot be acquired.—(92)
+Down to the very sole of his feet, Man is *pure*; that part of his body
+which is ‘*above the naval*’ is *extremely pure*; and purer even than
+that is his mouth. This has been declared by that person himself who is
+the creator of the world. (92)
 
 

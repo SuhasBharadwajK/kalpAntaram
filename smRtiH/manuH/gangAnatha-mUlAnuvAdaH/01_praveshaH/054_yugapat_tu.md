@@ -3,4 +3,4 @@ title = "054 युगपत् तु"
 
 +++
 
-Persons who have committed the heinous offences, having passed, during several years, through dreadful hells, reach, after the expiation thereof, the following migratory states.—(54)
+When this Soul of all things sleeps happy and contented, then all things become absorbed all at once in that Great Soul.—(54)

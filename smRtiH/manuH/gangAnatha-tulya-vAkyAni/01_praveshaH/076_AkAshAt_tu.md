@@ -2,10 +2,5 @@
 title = "076 आकाशात् तु"
 
 +++
-**(verses 12.75-76)**
-
-[\[See above,
-4.88-89.\]](/hinduism/book/manusmriti-with-the-commentary-of-medhatithi/d/doc200193.html#comparative-notes)
-
-See Comparative notes for [Verse
-12.75](/hinduism/book/manusmriti-with-the-commentary-of-medhatithi/d/doc202255.html#comparative-notes "English translation of verse").
+See Comparative notes for [Verse 1.75 (Ākāśa produced out of
+‘Mind’)](/hinduism/book/manusmriti-with-the-commentary-of-medhatithi-volume-3/d/doc145508.html#comparative).
