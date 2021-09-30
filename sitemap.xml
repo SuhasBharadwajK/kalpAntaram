@@ -188,8 +188,6 @@
   </url><url>
     <loc>https://vishvAsa.github.io/kalpAntaram/vishvAsa-matam/kriyAH/tAtkAlika-saMskAraH/sharIram/</loc>
   </url><url>
-    <loc>https://vishvAsa.github.io/kalpAntaram/smRti-chandrikA/Text/Ahnikam/shaucham/</loc>
-  </url><url>
     <loc>https://vishvAsa.github.io/kalpAntaram/smRti-chandrikA/Text/shrAddham/</loc>
   </url><url>
     <loc>https://vishvAsa.github.io/kalpAntaram/vishvAsa-matam/kriyAH/shrAddham/</loc>
@@ -221,6 +219,8 @@
     <loc>https://vishvAsa.github.io/kalpAntaram/smRtiH/yAjJNavalkyaH/mitAxarA/01_AchAraH/</loc>
   </url><url>
     <loc>https://vishvAsa.github.io/kalpAntaram/smRtiH/yAjJNavalkyaH/prastutiH/01_AchAraH/</loc>
+  </url><url>
+    <loc>https://vishvAsa.github.io/kalpAntaram/smRti-chandrikA/Text/Ahnikam/01_shaucham/</loc>
   </url><url>
     <loc>https://vishvAsa.github.io/kalpAntaram/dharmasindhuH/02/</loc>
   </url><url>
@@ -363,6 +363,8 @@
     <loc>https://vishvAsa.github.io/kalpAntaram/smRtiH/yAjJNavalkyaH/mitAxarA/Acknowledgement/</loc>
   </url><url>
     <loc>https://vishvAsa.github.io/kalpAntaram/dharma-ratnaH/dAyabhAgaH/Acknowledgements/</loc>
+  </url><url>
+    <loc>https://vishvAsa.github.io/kalpAntaram/kRtyakalpataruH/Acknowledgements/</loc>
   </url><url>
     <loc>https://vishvAsa.github.io/kalpAntaram/vishvAsa-matam/benefits/</loc>
   </url><url>
@@ -574,7 +576,7 @@
   </url><url>
     <loc>https://vishvAsa.github.io/kalpAntaram/smRti-chandrikA/Text/Ashaucham/01_prasavAshauchanirNayaH/</loc>
   </url><url>
-    <loc>https://vishvAsa.github.io/kalpAntaram/smRti-chandrikA/Text/Ahnikam/shaucham/01_mUtrapurIShotsarjanavidhiH/</loc>
+    <loc>https://vishvAsa.github.io/kalpAntaram/smRti-chandrikA/Text/Ahnikam/01_shaucham/01_mUtrapurIShotsarjanavidhiH/</loc>
   </url><url>
     <loc>https://vishvAsa.github.io/kalpAntaram/dharmasindhuH/01/01_vighneshaM_vandanam/</loc>
   </url><url>
@@ -646,7 +648,7 @@
   </url><url>
     <loc>https://vishvAsa.github.io/kalpAntaram/dharmasindhuH/10/02_vRShalaxaNam/</loc>
   </url><url>
-    <loc>https://vishvAsa.github.io/kalpAntaram/smRti-chandrikA/Text/Ahnikam/shaucham/02_shauchavidhiH/</loc>
+    <loc>https://vishvAsa.github.io/kalpAntaram/smRti-chandrikA/Text/Ahnikam/01_shaucham/02_shauchavidhiH/</loc>
   </url><url>
     <loc>https://vishvAsa.github.io/kalpAntaram/smRti-chandrikA/Text/shrAddham/02_shrAddhabhedAH/</loc>
   </url><url>
@@ -702,7 +704,7 @@
   </url><url>
     <loc>https://vishvAsa.github.io/kalpAntaram/smRti-chandrikA/Text/vyavahAraH/pAThaH/03_vyavahArabhedhAH/</loc>
   </url><url>
-    <loc>https://vishvAsa.github.io/kalpAntaram/smRti-chandrikA/Text/Ahnikam/shaucham/03_shArIramalashaucham/</loc>
+    <loc>https://vishvAsa.github.io/kalpAntaram/smRti-chandrikA/Text/Ahnikam/01_shaucham/03_shArIramalashaucham/</loc>
   </url><url>
     <loc>https://vishvAsa.github.io/kalpAntaram/smRti-chandrikA/Text/shrAddham/03_shrAddhAdhikArinirNayaH/</loc>
   </url><url>
@@ -842,7 +844,7 @@
   </url><url>
     <loc>https://vishvAsa.github.io/kalpAntaram/smRti-chandrikA/Text/saMskAraH/pAThaH/21_upanayanam/05_daNDAH/</loc>
   </url><url>
-    <loc>https://vishvAsa.github.io/kalpAntaram/smRti-chandrikA/Text/Ahnikam/shaucham/05_dantadhAvanavidhiH/</loc>
+    <loc>https://vishvAsa.github.io/kalpAntaram/smRti-chandrikA/Text/Ahnikam/01_shaucham/05_dantadhAvanavidhiH/</loc>
   </url><url>
     <loc>https://vishvAsa.github.io/kalpAntaram/smRti-chandrikA/Text/saMskAraH/pAThaH/dharme_pramANam/05_deshanirNayaH/</loc>
   </url><url>

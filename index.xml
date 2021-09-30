@@ -636,7 +636,7 @@ Since this electronic edition was released in mid-January 2020, hundreds of typo
       <pubDate>Mon, 01 Jan 0001 00:00:00 +0000</pubDate>
       
       <guid>https://vishvAsa.github.io/kalpAntaram/dharma-ratnaH/dAyabhAgaH/Acknowledgements/</guid>
-      <description>(See comment in manuH/medhAtithiH for conversion steps used here.)
+      <description>(See comment in /manuH/medhAtithiH for conversion steps used here.)
 Open Educational Resources
 for South Asian Language Research
 Language: Sanskrit
@@ -647,6 +647,21 @@ University of Texas at Austin
 Jīmūtavāhana
 DĀYABHĀGA
 Based on: Ludo Rocher, _Jīmūtavāhana&amp;rsquo;s Dāyabhāga: The Hindu Law of Inheritance in Bengal.</description>
+    </item>
+    
+    <item>
+      <title>Acknowledgements</title>
+      <link>https://vishvAsa.github.io/kalpAntaram/kRtyakalpataruH/Acknowledgements/</link>
+      <pubDate>Mon, 01 Jan 0001 00:00:00 +0000</pubDate>
+      
+      <guid>https://vishvAsa.github.io/kalpAntaram/kRtyakalpataruH/Acknowledgements/</guid>
+      <description>(See comment in /manuH/medhAtithiH for conversion steps used here.)
+Open Educational Resources
+for South Asian Language Research
+Language: Sanskrit
+Searchable Electronic Edition of the Dāyabhāga of Jīmūtavāhana, transcribed, formatted, and color-coded by Patrick Olivelle, is licensed under a Creative Commons Attribution 4.0 International License.
+Last updated: August 2021
+Patrick Olivelle (jpo@austin.utexas.edu)</description>
     </item>
     
     <item>
@@ -1874,10 +1889,10 @@ One outlier is Atharvanic kauśika sūtra- the single fire pākatantra procedure
     
     <item>
       <title>०१ मूत्रपुरीषोत्सर्जनविधिः</title>
-      <link>https://vishvAsa.github.io/kalpAntaram/smRti-chandrikA/Text/Ahnikam/shaucham/01_mUtrapurIShotsarjanavidhiH/</link>
+      <link>https://vishvAsa.github.io/kalpAntaram/smRti-chandrikA/Text/Ahnikam/01_shaucham/01_mUtrapurIShotsarjanavidhiH/</link>
       <pubDate>Mon, 01 Jan 0001 00:00:00 +0000</pubDate>
       
-      <guid>https://vishvAsa.github.io/kalpAntaram/smRti-chandrikA/Text/Ahnikam/shaucham/01_mUtrapurIShotsarjanavidhiH/</guid>
+      <guid>https://vishvAsa.github.io/kalpAntaram/smRti-chandrikA/Text/Ahnikam/01_shaucham/01_mUtrapurIShotsarjanavidhiH/</guid>
       <description>मूत्रपुरीषोत्सर्जनविधिः
 उक्ताः संस्काराः । इदानीम् अवसरप्राप्तम् आह्निकं प्रस्तूयते । तत्र मनुः ।
  ब्राह्मे मुहूर्त उत्थाय धर्मार्थाव् अनुचिन्तयेत् ।
@@ -2454,10 +2469,10 @@ _स च व्यवहारः कीदृशः कतिविधः क�
     
     <item>
       <title>०२ शौचविधिः</title>
-      <link>https://vishvAsa.github.io/kalpAntaram/smRti-chandrikA/Text/Ahnikam/shaucham/02_shauchavidhiH/</link>
+      <link>https://vishvAsa.github.io/kalpAntaram/smRti-chandrikA/Text/Ahnikam/01_shaucham/02_shauchavidhiH/</link>
       <pubDate>Mon, 01 Jan 0001 00:00:00 +0000</pubDate>
       
-      <guid>https://vishvAsa.github.io/kalpAntaram/smRti-chandrikA/Text/Ahnikam/shaucham/02_shauchavidhiH/</guid>
+      <guid>https://vishvAsa.github.io/kalpAntaram/smRti-chandrikA/Text/Ahnikam/01_shaucham/02_shauchavidhiH/</guid>
       <description>अथ शौचविधिः
 तत्र याज्ञवल्क्यः ।
  गृहीतशिश्नश् चोत्थाय मृद्भिर् अभ्युद्धृतैर् जलैः ।
@@ -2923,10 +2938,10 @@ _	पत्नी धर्मार्थकामानां कारणं 
     
     <item>
       <title>०३ शारीरमलशौचम्</title>
-      <link>https://vishvAsa.github.io/kalpAntaram/smRti-chandrikA/Text/Ahnikam/shaucham/03_shArIramalashaucham/</link>
+      <link>https://vishvAsa.github.io/kalpAntaram/smRti-chandrikA/Text/Ahnikam/01_shaucham/03_shArIramalashaucham/</link>
       <pubDate>Mon, 01 Jan 0001 00:00:00 +0000</pubDate>
       
-      <guid>https://vishvAsa.github.io/kalpAntaram/smRti-chandrikA/Text/Ahnikam/shaucham/03_shArIramalashaucham/</guid>
+      <guid>https://vishvAsa.github.io/kalpAntaram/smRti-chandrikA/Text/Ahnikam/01_shaucham/03_shArIramalashaucham/</guid>
       <description>अथ शारीरमलशौचम्
 तत्र मनुः ।
  ऊर्ध्वं नाभेत् यानि खानि तानि मेध्यानि सर्वशः ।
@@ -4177,10 +4192,10 @@ _	पत्नी धर्मार्थकामानां कारणं 
     
     <item>
       <title>०५ दन्तधावनविधिः</title>
-      <link>https://vishvAsa.github.io/kalpAntaram/smRti-chandrikA/Text/Ahnikam/shaucham/05_dantadhAvanavidhiH/</link>
+      <link>https://vishvAsa.github.io/kalpAntaram/smRti-chandrikA/Text/Ahnikam/01_shaucham/05_dantadhAvanavidhiH/</link>
       <pubDate>Mon, 01 Jan 0001 00:00:00 +0000</pubDate>
       
-      <guid>https://vishvAsa.github.io/kalpAntaram/smRti-chandrikA/Text/Ahnikam/shaucham/05_dantadhAvanavidhiH/</guid>
+      <guid>https://vishvAsa.github.io/kalpAntaram/smRti-chandrikA/Text/Ahnikam/01_shaucham/05_dantadhAvanavidhiH/</guid>
       <description>अथ दन्तधावनविधिः
 अत्र शातातपः ।
  सुखे पर्युषिते नित्यं भवत्य् अप्रयतो नरः ।
